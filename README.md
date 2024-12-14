@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hmtnmira
 - most people just call me hmtn
-- sometimes ijo Sijen (ee-yo see-yen) or Mira
+- sometimes ijo Sijen (ee-yo see-eyn) or Mira
 - welcome to my page!
 
 <!---
